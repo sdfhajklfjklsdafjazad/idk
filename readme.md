@@ -1,1 +1,1 @@
-1st create git repo
+what  you know 1st create git repo
